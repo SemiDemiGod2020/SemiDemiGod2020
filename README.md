@@ -1,0 +1,15 @@
+- 👋 Hi, I’m @SemiDemiGod2020
+- 👀 I’m interested in car audio dB & SPL "bass"..ically 🤯
+- 🌱 I’m currently learning everything I can that may be useful...
+- 💞️ I’m looking to collaborate on nothing really just 
+-Leach files and passed out new software in alpha beta or whatever.
+- 📫 How to reach me, don't call or text without a reason and
+-Letting me know online first that you will be calling...
+-If you get no response then I will not be answering.
+-<!---
+-SemiDemiGod2020/SemiDemiGod2020 is a 🙊special🙈 repository because 
+-its `README.md` (this highly sought after tidal full hq ripper file is) 
+-Something that I hope 1 day, appears on your GitHub profile.
+
+-You can click the Preview link to take a look at your changes.
+---->
